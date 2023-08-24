@@ -1,5 +1,3 @@
-Understanding the Importance of Trust and Credibility
-================================================================================================
 
 Building trust and credibility is a critical component of effective influence in the workplace. In this chapter, we'll explore the importance of trust and credibility, strategies for building trust and credibility, and how to maintain trust and credibility over time.
 

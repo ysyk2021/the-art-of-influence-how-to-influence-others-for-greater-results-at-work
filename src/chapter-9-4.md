@@ -1,5 +1,3 @@
-Adapting to Changes in the Workplace
-===============================================================================================
 
 Adapting to changes in the workplace is critical for effective influence. In this chapter, we'll explore strategies for tracking progress and measuring results, evaluating the effectiveness of influence strategies, and adapting to changes in the workplace.
 

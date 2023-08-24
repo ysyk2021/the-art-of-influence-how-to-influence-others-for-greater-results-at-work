@@ -1,5 +1,3 @@
-Setting Realistic Goals and Objectives
-====================================================================================
 
 Setting realistic goals and objectives is a critical component of developing an influential mindset in the workplace. In this chapter, we'll explore strategies for setting realistic goals and objectives, including aligning personal and organizational objectives, using SMART criteria, and breaking down larger goals into smaller, actionable steps.
 

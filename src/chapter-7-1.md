@@ -1,5 +1,3 @@
-Understanding the Nature of Change
-===============================================================================
 
 Understanding the nature of change is a critical component of leading change through influence in the workplace. In this chapter, we'll explore strategies for understanding the nature of change, including recognizing the stages of change, understanding resistance to change, and promoting a culture of innovation and continuous improvement.
 

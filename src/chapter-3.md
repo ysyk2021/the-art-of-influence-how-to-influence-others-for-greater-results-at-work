@@ -1,5 +1,3 @@
-Chapter 3: Developing an Influential Mindset
-============================================
 
 Developing an influential mindset is essential for effective influence in the workplace. In this chapter, we'll explore strategies for cultivating an influential mindset, utilizing positive self-talk and visualization, setting realistic goals and objectives, and developing empathy and compassion through influence.
 

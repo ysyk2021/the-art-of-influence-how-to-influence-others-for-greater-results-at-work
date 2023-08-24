@@ -1,5 +1,3 @@
-Common Misconceptions About Influence
-==============================================================
 
 Influence is a critical skill for achieving greater results at work, but there are also common misconceptions about what influence is and how it works. In this chapter, we'll explore some of these misconceptions and clarify what effective influence really entails.
 

@@ -1,5 +1,3 @@
-Active Listening and Asking Powerful Questions
-===============================================================================
 
 Active listening and asking powerful questions are critical components of understanding others in the workplace. In this chapter, we'll explore strategies for active listening and asking powerful questions, including using open-ended questions, paraphrasing and summarizing, and demonstrating empathy and understanding.
 

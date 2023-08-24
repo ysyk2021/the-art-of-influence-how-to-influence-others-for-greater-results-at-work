@@ -1,5 +1,3 @@
-Utilizing Positive Self-Talk and Visualization
-============================================================================================
 
 Utilizing positive self-talk and visualization is a critical component of developing an influential mindset in the workplace. In this chapter, we'll explore strategies for utilizing positive self-talk and visualization, including identifying negative self-talk, reframing thoughts, and practicing visualization techniques.
 

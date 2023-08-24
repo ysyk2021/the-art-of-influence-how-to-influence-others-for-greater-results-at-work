@@ -1,5 +1,3 @@
-Chapter 6: Developing Effective Persuasion Strategies
-=====================================================
 
 Developing effective persuasion strategies is critical for achieving greater results at work. In this chapter, we'll explore strategies for understanding the principles of persuasion, developing a compelling story and message, using evidence and data to support your position, and handling objections with tact and diplomacy.
 

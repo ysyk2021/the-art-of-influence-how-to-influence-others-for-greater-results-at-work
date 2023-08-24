@@ -1,5 +1,3 @@
-Fostering Collaboration and Teamwork
-==============================================================================
 
 Fostering collaboration and teamwork is a critical component of effective influence across boundaries. In this chapter, we'll explore strategies for building a culture of collaboration and teamwork within the organization or industry, promoting mutual respect, trust, and open communication among colleagues and stakeholders.
 

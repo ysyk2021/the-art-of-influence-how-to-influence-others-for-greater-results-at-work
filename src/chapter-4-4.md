@@ -1,5 +1,3 @@
-Fostering Authenticity and Transparency
-==================================================================================
 
 Building trust and credibility is a critical component of influencing others in the workplace. In this chapter, we'll explore strategies for building trust and credibility, including fostering authenticity and transparency, communicating openly and honestly, and following through on commitments.
 

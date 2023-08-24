@@ -1,5 +1,3 @@
-Managing Resistance and Conflict
-=============================================================================
 
 Managing resistance and conflict is a critical component of leading change through influence in the workplace. In this chapter, we'll explore strategies for managing resistance and conflict, including understanding the sources of resistance, effective communication and negotiation skills, and promoting a culture of collaboration and teamwork.
 

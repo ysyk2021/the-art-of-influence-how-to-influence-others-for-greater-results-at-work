@@ -1,5 +1,3 @@
-Techniques for Cultivating an Influential Mindset
-===============================================================================================
 
 Developing an influential mindset is critical for achieving greater results at work. In this chapter, we'll explore techniques for cultivating an influential mindset, including developing a growth mindset, practicing self-awareness, and setting goals.
 

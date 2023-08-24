@@ -1,5 +1,3 @@
-Chapter 5: Understanding Others
-===============================
 
 Understanding others is a critical component of effective influence. In this chapter, we'll explore strategies for developing empathy and emotional intelligence, identifying personality styles and preferences, active listening and asking powerful questions, and building rapport and connection with colleagues and stakeholders.
 
@@ -27,5 +25,4 @@ Conclusion
 ----------
 
 Understanding others is critical for effective influence in the workplace. Remember to develop empathy and emotional intelligence, identify personality styles and preferences, practice active listening and asking powerful questions, and focus on building rapport and connection with colleagues and stakeholders. By consistently using these strategies, individuals can become more effective influencers and achieve their personal and organizational objectives.
-
 

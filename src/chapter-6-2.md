@@ -1,5 +1,3 @@
-Developing a Compelling Story and Message
-================================================================================================
 
 Developing a compelling story and message is a critical component of developing effective persuasion strategies in the workplace. In this chapter, we'll explore strategies for developing a compelling story and message, including understanding the audience, crafting a clear and concise message, and using storytelling techniques.
 

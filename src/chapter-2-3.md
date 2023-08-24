@@ -1,5 +1,3 @@
-Assessing Your Personal Approach to Influencing Others
-=====================================================================================
 
 Assessing your personal approach to influencing others is critical for developing effective influence skills. In this chapter, we'll examine different approaches to influence and provide a framework for assessing your own personal approach to influencing others.
 
@@ -44,5 +42,4 @@ Conclusion
 ----------
 
 Assessing your personal approach to influence is critical for developing effective influence skills. By considering different approaches to influence, reflecting on personal strengths and weaknesses, seeking feedback, and practicing active listening and empathy, individuals can become more effective influencers and achieve greater results at work. Remember to approach influence with authenticity and respect, and focus on building strong connections and understanding with colleagues and clients from all backgrounds.
-
 

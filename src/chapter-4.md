@@ -1,5 +1,3 @@
-Chapter 4: Building Trust and Credibility
-=========================================
 
 Building trust and credibility is essential for effective influence in the workplace. In this chapter, we'll explore strategies for understanding the importance of trust and credibility, developing effective communication strategies, demonstrating competence and expertise, and fostering authenticity and transparency.
 
@@ -27,5 +25,4 @@ Conclusion
 ----------
 
 Building trust and credibility is critical for effective influence in the workplace. Remember to understand the importance of trust and credibility, develop effective communication strategies, demonstrate competence and expertise, and foster authenticity and transparency. By consistently using these strategies, individuals can become more effective influencers and achieve their personal and organizational objectives.
-
 

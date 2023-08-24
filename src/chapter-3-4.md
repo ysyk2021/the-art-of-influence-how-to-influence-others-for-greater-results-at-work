@@ -1,5 +1,3 @@
-Developing Empathy and Compassion Through Influence
-=================================================================================================
 
 Developing empathy and compassion through influence is a critical component of developing an influential mindset. In this chapter, we'll explore strategies for cultivating empathy and compassion, understanding the needs and perspectives of others, and building stronger relationships with colleagues and stakeholders.
 

@@ -1,5 +1,3 @@
-Understanding the Principles of Persuasion
-=================================================================================================
 
 Effective persuasion is an essential skill for anyone who wants to influence others and achieve greater results at work. In this chapter, we will explore the principles of persuasion and how to develop effective persuasion strategies.
 

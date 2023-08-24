@@ -1,5 +1,3 @@
-Overview of Influence
-====================================================
 
 Influence is a crucial skill for achieving greater results at work. It involves the ability to persuade and motivate others to take action, change their attitudes or beliefs, and achieve common goals. In this chapter, we'll provide an overview of influence, its importance in the workplace, and the key attributes of influential individuals.
 

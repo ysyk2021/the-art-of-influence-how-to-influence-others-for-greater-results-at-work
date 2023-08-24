@@ -1,5 +1,3 @@
-Identifying Personality Styles and Preferences
-===============================================================================
 
 Identifying personality styles and preferences is a critical component of understanding others in the workplace. In this chapter, we'll explore strategies for identifying personality styles and preferences, including using personality assessments, observing behavior and communication styles, and seeking input and feedback from colleagues and stakeholders.
 

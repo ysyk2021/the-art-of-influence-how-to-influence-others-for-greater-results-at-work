@@ -1,5 +1,3 @@
-Chapter 2: Defining Influence
-=============================
 
 Effective influence is critical for achieving success in the workplace. In this chapter, we'll explore what influence means, the science behind influence, and how to assess your personal approach to influencing others.
 

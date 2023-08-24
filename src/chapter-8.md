@@ -1,5 +1,3 @@
-Chapter 8: Influencing Across Boundaries
-========================================
 
 Influencing across boundaries is critical for achieving greater results at work, particularly in complex organizations and industries. In this chapter, we'll explore strategies for influencing up, down, and across the organization, building networks and partnerships, navigating politics and power dynamics, and fostering collaboration and teamwork.
 

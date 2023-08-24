@@ -1,5 +1,3 @@
-Developing Strategies for Leading Change
-=====================================================================================
 
 Leading change through influence is critical for achieving success in the workplace. In this chapter, we'll explore strategies for developing effective change management strategies, managing resistance and conflict, and celebrating successes and recognizing accomplishments.
 

@@ -1,5 +1,3 @@
-Benefits of Effective Influence
-========================================================
 
 Effective influence is critical for achieving greater results at work. In this chapter, we'll explore the benefits of effective influence, including improved relationships, increased productivity, and greater job satisfaction.
 

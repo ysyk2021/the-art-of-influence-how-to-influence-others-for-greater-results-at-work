@@ -1,5 +1,3 @@
-Using Evidence and Data to Support Your Position
-=======================================================================================================
 
 Using evidence and data to support your position is a critical component of developing effective persuasion strategies in the workplace. In this chapter, we'll explore strategies for using evidence and data to support your position, including identifying credible sources, presenting data effectively, and anticipating objections.
 

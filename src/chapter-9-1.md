@@ -1,5 +1,3 @@
-Tracking Progress and Measuring Results
-==================================================================================================
 
 Tracking progress and measuring results is a critical component of effective influence. In this chapter, we'll explore strategies for setting clear goals and objectives, monitoring progress towards these goals, and evaluating the effectiveness of influence strategies.
 

@@ -1,5 +1,3 @@
-Building Rapport and Connection
-================================================================
 
 Building rapport and connection with others is critical for effective influence in the workplace. In this chapter, we'll explore strategies for understanding others, including active listening, empathy, and adapting communication styles to build stronger relationships.
 

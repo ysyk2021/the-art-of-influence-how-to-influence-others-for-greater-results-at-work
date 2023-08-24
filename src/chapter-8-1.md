@@ -1,5 +1,3 @@
-Influencing Up, Down, and Across the Organization
-===========================================================================================
 
 Influencing up, down, and across the organization is critical for achieving success in the workplace. In this chapter, we'll explore strategies for influencing others across boundaries, including understanding different perspectives and communication styles, building relationships with key stakeholders, and adapting to different organizational cultures.
 

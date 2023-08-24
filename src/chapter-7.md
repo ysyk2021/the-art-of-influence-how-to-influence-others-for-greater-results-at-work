@@ -1,5 +1,3 @@
-Chapter 7: Leading Change Through Influence
-===========================================
 
 Leading change through influence is a critical component of effective leadership in the workplace. In this chapter, we'll explore strategies for understanding the nature of change, developing strategies for leading change, managing resistance and conflict, and celebrating successes and recognizing accomplishments.
 

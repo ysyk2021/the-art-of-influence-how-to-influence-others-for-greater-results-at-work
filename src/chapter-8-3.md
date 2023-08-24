@@ -1,5 +1,3 @@
-Navigating Politics and Power Dynamics
-================================================================================
 
 Influencing across boundaries can be challenging, particularly when navigating complex politics and power dynamics. In this chapter, we'll explore strategies for effectively influencing stakeholders in these situations.
 

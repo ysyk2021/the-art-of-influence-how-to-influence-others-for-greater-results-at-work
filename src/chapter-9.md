@@ -1,5 +1,3 @@
-Chapter 9: Measuring Results and Learning from Experience
-=========================================================
 
 Influencing others for greater results at work is an ongoing process that requires continuous learning and improvement. In this chapter, we'll explore strategies for measuring results, reflecting on experience, and adapting to changes in the workplace.
 

@@ -1,4 +1,4 @@
-# Introduction
+
 
 Influence is a critical skill for achieving success at work. Whether you're a manager, team leader, or individual contributor, the ability to influence others is essential for achieving your goals and driving results.
 

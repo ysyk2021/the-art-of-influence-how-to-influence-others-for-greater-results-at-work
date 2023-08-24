@@ -1,5 +1,3 @@
-Understanding the Importance of Influence in the Workplace
-===================================================================================
 
 Influence is an essential skill for achieving success in the workplace. In this chapter, we'll explore the importance of influence in achieving personal and organizational objectives.
 

@@ -1,5 +1,3 @@
-Celebrating Successes and Recognizing Accomplishments
-==================================================================================================
 
 Celebrating successes and recognizing accomplishments is a critical component of leading change through influence in the workplace. In this chapter, we'll explore strategies for celebrating successes and recognizing accomplishments, including acknowledging milestones and achievements, promoting a sense of ownership and pride in the change process, and reinforcing positive behaviors and attitudes.
 
@@ -22,5 +20,4 @@ Conclusion
 ----------
 
 Celebrating successes and recognizing accomplishments is critical for leading change through influence in the workplace. Remember to acknowledge milestones and achievements, promote a sense of ownership and pride, and reinforce positive behaviors and attitudes. By consistently using these strategies, individuals can become more effective influencers and achieve their personal and organizational objectives.
-
 

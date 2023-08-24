@@ -1,5 +1,3 @@
-Understanding the Science Behind Influence
-=========================================================================
 
 Influence is a powerful tool for achieving greater results at work. In this chapter, we'll explore the science behind influence and define what it means to be influential.
 

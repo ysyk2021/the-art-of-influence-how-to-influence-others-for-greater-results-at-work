@@ -1,4 +1,4 @@
-# Conclusion
+
 
 In this book, we've explored the art of influence and strategies for influencing others for greater results at work. From understanding others and building rapport to developing an influential mindset and assessing personal approaches to influence, we've covered a range of key concepts and techniques.
 

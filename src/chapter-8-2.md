@@ -1,5 +1,3 @@
-Building Networks and Partnerships
-============================================================================
 
 Influencing across boundaries is critical for achieving greater results at work, particularly in complex organizations and industries. In this chapter, we'll explore strategies for building networks and partnerships to effectively influence stakeholders from diverse backgrounds and perspectives.
 
