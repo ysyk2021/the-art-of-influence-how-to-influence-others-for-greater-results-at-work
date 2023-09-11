@@ -1,5 +1,4 @@
-Chapter: Identifying Personality Styles and Preferences
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of identifying personality styles and preferences in influencing others for greater results at work. We will delve into various personality frameworks, effective assessment methods, and strategies for adapting our influence techniques to different personality styles. By understanding and leveraging personality styles, individuals can tailor their approach, build rapport, and achieve more impactful results.
 

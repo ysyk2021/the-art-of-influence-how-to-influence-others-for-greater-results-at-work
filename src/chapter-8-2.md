@@ -1,5 +1,4 @@
-Chapter: Building Networks and Partnerships
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of building networks and partnerships in influencing others for greater results at work. We will discuss the benefits of networking, strategies for expanding professional networks, techniques for effective relationship building, and the role of partnerships in achieving shared goals.
 

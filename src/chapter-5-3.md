@@ -1,5 +1,4 @@
-Chapter: Active Listening and Asking Powerful Questions
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of active listening and asking powerful questions as essential tools for effective influence in the workplace. We will delve into the art of attentive listening, the benefits of asking insightful questions, and how these practices can enhance communication, understanding, and collaboration. By mastering active listening and asking powerful questions, individuals can deepen connections, uncover valuable insights, and achieve greater results at work.
 

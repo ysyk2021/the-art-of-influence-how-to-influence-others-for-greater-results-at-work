@@ -1,5 +1,4 @@
-Chapter: Understanding the Science Behind Influence
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the science behind influence and explore the psychological principles that underpin effective persuasion. By understanding the scientific foundations of influence, individuals can enhance their persuasive abilities, build credibility, and achieve greater results at work. We will explore key concepts such as social proof, reciprocity, authority, liking, scarcity, and the power of storytelling.
 

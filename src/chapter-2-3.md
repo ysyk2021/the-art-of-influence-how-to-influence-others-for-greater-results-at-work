@@ -1,5 +1,4 @@
-Chapter: Assessing Your Personal Approach to Influencing Others
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of assessing your personal approach to influencing others for achieving greater results at work. We will delve into self-reflection and evaluation techniques to understand your current influencing style, strengths, and areas for improvement. By assessing your personal approach to influence, you can refine your strategies, enhance your effectiveness, and drive positive outcomes in your professional interactions.
 

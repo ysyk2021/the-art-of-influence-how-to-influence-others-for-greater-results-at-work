@@ -1,5 +1,4 @@
-Chapter: Developing Effective Communication Strategies
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the importance of developing effective communication strategies as a means to influence others for greater results at work. We will explore various techniques and principles that can enhance your communication skills, enable you to convey your message persuasively, and foster productive interactions. By mastering effective communication, individuals can improve their ability to influence, build strong relationships, and drive positive outcomes through effective influence.
 

@@ -1,5 +1,4 @@
-Chapter: Developing a Compelling Story and Message
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of developing a compelling story and message in the process of influencing others for greater results at work. We will discuss the power of storytelling, techniques for crafting a compelling message, understanding your audience, and delivering impactful communication. By implementing these practices, individuals can effectively engage and persuade others, driving positive outcomes and achieving desired results.
 

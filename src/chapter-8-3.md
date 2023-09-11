@@ -1,5 +1,4 @@
-Chapter: Navigating Politics and Power Dynamics
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the challenges of navigating politics and power dynamics in influencing others for greater results at work. We will discuss the importance of understanding organizational politics, strategies for navigating power dynamics, techniques for building positive relationships, and ethical considerations when dealing with politics.
 

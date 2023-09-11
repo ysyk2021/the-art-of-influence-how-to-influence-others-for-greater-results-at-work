@@ -1,5 +1,4 @@
-Chapter: Utilizing Positive Self-Talk and Visualization
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the power of positive self-talk and visualization as tools for influencing others and achieving greater results at work. We will discuss the benefits of these techniques, strategies for implementing them effectively, and their impact on personal and professional success.
 

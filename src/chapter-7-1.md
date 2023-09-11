@@ -1,5 +1,4 @@
-Chapter: Understanding the Nature of Change
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the nature of change and its impact on influencing others for greater results at work. We will delve into the stages of change, the importance of adaptability, and effective strategies for navigating and embracing change. By understanding the nature of change, individuals can become more resilient, adaptable, and influential in driving positive outcomes.
 

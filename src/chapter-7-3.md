@@ -1,5 +1,4 @@
-Chapter: Managing Resistance and Conflict
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the challenges of managing resistance and conflict in the workplace and provide strategies for effectively addressing these issues. We will discuss the causes of resistance and conflict, the impact they have on results at work, and practical approaches for navigating and resolving them.
 

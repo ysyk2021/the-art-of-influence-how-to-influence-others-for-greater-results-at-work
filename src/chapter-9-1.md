@@ -1,5 +1,4 @@
-Chapter: Tracking Progress and Measuring Results
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of tracking progress and measuring results in influencing others for greater success at work. We will discuss the benefits of monitoring progress, setting measurable goals, using key performance indicators (KPIs), and implementing effective measurement strategies.
 

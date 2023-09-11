@@ -1,5 +1,4 @@
-Chapter: Setting Realistic Goals and Objectives
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of setting realistic goals and objectives for achieving greater results at work. We will discuss the benefits of setting achievable targets, strategies for defining realistic goals, and techniques to ensure successful goal attainment.
 

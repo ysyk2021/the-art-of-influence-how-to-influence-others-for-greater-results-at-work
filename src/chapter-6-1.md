@@ -1,5 +1,4 @@
-Chapter: Understanding the Principles of Persuasion
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the principles of persuasion in the context of influencing others for greater results at work. We will discuss key psychological principles, techniques for applying them effectively, and ethical considerations. By understanding and harnessing these principles, individuals can enhance their persuasive abilities, build strong relationships, and achieve desired outcomes through effective influence.
 

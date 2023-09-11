@@ -1,5 +1,4 @@
-Chapter: Building Rapport and Connection
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of building rapport and connection for influencing others and achieving greater results at work. We will discuss the benefits of strong relationships, strategies for building rapport, and techniques to foster meaningful connections with colleagues and stakeholders.
 

@@ -1,5 +1,4 @@
-Chapter: Developing Empathy and Compassion through Influence
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the crucial role of empathy and compassion in influencing others for greater results at work. We will delve into the importance of understanding and connecting with others on an emotional level, strategies for developing empathy and compassion, and the positive impact these qualities can have on our ability to influence effectively.
 

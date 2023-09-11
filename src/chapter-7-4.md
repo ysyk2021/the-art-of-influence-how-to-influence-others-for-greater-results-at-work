@@ -1,5 +1,4 @@
-Chapter: Celebrating Successes and Recognizing Accomplishments
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of celebrating successes and recognizing accomplishments for influencing others and achieving greater results at work. We will discuss the benefits of celebrating achievements, strategies for effective recognition, and techniques to foster a culture of celebration and appreciation.
 

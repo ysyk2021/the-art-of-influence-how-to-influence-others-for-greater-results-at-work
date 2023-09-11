@@ -1,5 +1,4 @@
-Chapter: Developing Empathy and Emotional Intelligence
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of developing empathy and emotional intelligence in the workplace. We will discuss the benefits of these qualities, strategies for cultivating them, and their impact on influencing others for greater results at work.
 

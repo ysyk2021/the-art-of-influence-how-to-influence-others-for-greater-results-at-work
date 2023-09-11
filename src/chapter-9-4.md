@@ -1,5 +1,4 @@
-Chapter: Adapting to Changes in the Workplace
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of adapting to changes in the workplace and how it contributes to influencing others and achieving greater results. We will discuss the challenges associated with change, strategies for effectively adapting, and techniques for fostering a culture of adaptability.
 

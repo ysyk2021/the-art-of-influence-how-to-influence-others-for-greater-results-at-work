@@ -1,5 +1,4 @@
-Chapter: Handling Objections with Tact and Diplomacy
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of handling objections with tact and diplomacy as a means to influence others for greater results at work. We will discuss strategies for addressing objections in a respectful and persuasive manner, maintaining positive relationships, and navigating challenging situations effectively. By mastering the art of handling objections, individuals can overcome resistance, build trust, and drive positive outcomes through effective influence.
 

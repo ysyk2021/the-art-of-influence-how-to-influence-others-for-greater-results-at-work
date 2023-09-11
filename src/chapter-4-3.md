@@ -1,5 +1,4 @@
-Chapter: Demonstrating Competence and Expertise
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of demonstrating competence and expertise as a means to influence others for greater results at work. We will discuss strategies for showcasing your skills, knowledge, and experience effectively, building credibility, and establishing yourself as a trusted authority in your field. By demonstrating competence and expertise, individuals can enhance their persuasive abilities, inspire confidence, and drive positive outcomes through effective influence.
 

@@ -1,5 +1,4 @@
-Chapter: Developing Strategies for Leading Change
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of effectively leading change in the workplace and provide strategies for developing successful change initiatives. We will discuss the role of influential leadership, the stages of change, and practical approaches to navigate resistance and engage stakeholders in the change process.
 

@@ -1,5 +1,4 @@
-Chapter: Influencing Up, Down, and Across the Organization
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of influencing up, down, and across the organization for achieving greater results at work. We will discuss strategies for effectively influencing superiors, subordinates, and peers, as well as techniques for building influence across different levels of the organization.
 

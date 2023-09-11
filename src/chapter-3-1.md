@@ -1,5 +1,4 @@
-Chapter: Techniques for Cultivating an Influential Mindset
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques for cultivating an influential mindset to effectively influence others and achieve greater results at work. We will discuss the key elements of an influential mindset, strategies for developing it, and techniques to maintain and strengthen this mindset over time.
 

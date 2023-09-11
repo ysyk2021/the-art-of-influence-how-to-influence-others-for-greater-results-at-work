@@ -1,5 +1,4 @@
-Chapter: Continuous Learning and Improvement
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of continuous learning and improvement in influencing others for greater results at work. We will discuss the benefits of a growth mindset, strategies for fostering a culture of continuous learning, techniques for personal development, and the role of feedback in driving improvement.
 
